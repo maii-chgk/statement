@@ -1,5 +1,7 @@
 # **Statement by the IAIS Executive Committee**
 
+_November 12th, 2024_
+
 On November 5, the Russian Prosecutor General's Office declared the International Association of Intellectual Games (German: IAIS, Russian: МАИИ) to be an undesirable organization.
 
 The IAIS functions much like an international sports federation, developing standards and recommendations used by players across various countries. We have always been an open platform for exchanging ideas and have never aimed to monopolize intellectual gaming processes. We offer everyone the freedom of choice to use our tools or others.

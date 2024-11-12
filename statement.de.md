@@ -1,5 +1,7 @@
 # **Stellungnahme des Vorstands der IAIS**
 
+_12\. November 2024_
+
 Am 5\. November erklärte die russische Generalstaatsanwaltschaft die Internationale Assoziation für Intellektuelle Spiele (IAIS, russisch: МАИИ) zu einer unerwünschten Organisation.
 
 Die IAIS ist in ihren Zielen und Aufgaben vergleichbar mit einem internationalen Sportverband. Wir entwickeln Normen und Empfehlungen, die Spieler in verschiedenen Ländern nutzen. Die IAIS war immer eine offene Plattform für den Ideenaustausch und hat nie versucht, Spielprozesse zu monopolisieren; wir ließen den Nutzern stets die Wahl, unsere oder andere Instrumente zu verwenden.
